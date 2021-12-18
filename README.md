@@ -5,4 +5,4 @@ other small contributions.
 
 ## More to come...
 
-Don't worry! There'll be a little more content here in the future.
+Don't worry! There'll be a little more here in the future.
